@@ -1,0 +1,2 @@
+# premium-leg-vise-001-leg-vise-building-post-mount
+Tired of juggling ten different spreadsheets, PDFs, and sketch notes just to keep your leg vise build from turning into a pile of scrap? That moment of panic when you realize you forgot to order the right screw size or missed a critical alignment step is exactly what this hub eliminates.  The Leg Vise Building &amp; Post Mount Craft Hub is the only Not
